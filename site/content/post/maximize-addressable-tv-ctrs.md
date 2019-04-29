@@ -34,6 +34,6 @@ Due to our experiences, we are able to increase aesthetics and legibility by opt
 
 ![](/img/d416c607-7fec-478c-8f1e-7d115f61cec5.png)
 
- 
+
 
 ![](/img/0f6100b1-2c84-4c91-a2f2-843e001df209.png)
